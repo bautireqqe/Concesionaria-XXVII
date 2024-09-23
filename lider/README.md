@@ -1,2 +1,0 @@
-# CONSECIONARIA XXVII
-test
